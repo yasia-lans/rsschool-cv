@@ -1,5 +1,5 @@
 # Lantsova Yana
-! [](/Users/egorlancov/Downloads/uOVIvO265tQ.jpg)
+ [](/Users/egorlancov/Downloads/uOVIvO265tQ.jpg)
 
 *03.09.1993* 27 y.o.
 
